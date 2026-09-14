@@ -14,4 +14,4 @@ Gold Sponsor of Global Azure Torino 2026.
 
 ---
 
-[www.extranetsrl.it](https://www.extranetsrl.it) · anisa.haxhialushi@extranetsrl.it · federico.laurianti@extranetsrl.it
+[www.extranetsrl.it](https://www.extranetsrl.it) · info@extranetsrl.it
